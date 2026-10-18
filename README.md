@@ -13,3 +13,4 @@ today he broke mom mobile
 mom bleeding so going to atp
 eppudu Eppuda tmr na avuna tc 
 ela mari 
+ok padukota mom undi tc pray after reached msg 77 clear(c)
