@@ -1,5 +1,2 @@
 # Resume
-
-🟥🚩
-
-going to atp
+when what happened tc i will prayer
